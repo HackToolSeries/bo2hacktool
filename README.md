@@ -2,7 +2,7 @@
 Call Of Duty Black Ops 2 Hack Tool
 [PC] [Steam] [External]
 
-Discord Download: https://discord.gg/XS9aCmj
+Download free on discord: https://discord.gg/XS9aCmj
 
 Offhost
 - Aimbot
